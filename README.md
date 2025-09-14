@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **nathan.honore62@gmail.com**
 
-- 📄 Know about my experiences [message me](message me)
+- 📄 Want to know about my experiences ? Message me
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
